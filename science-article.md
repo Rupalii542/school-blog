@@ -1,0 +1,1 @@
+Science is the systematic study of the natural world through observation, experimentation, and analysis. It helps us understand the laws of nature, from the smallest atoms to the vast universe. Science has led to groundbreaking discoveries in medicine, technology, and space exploration, improving human life in countless ways. 
